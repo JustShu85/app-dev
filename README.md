@@ -46,10 +46,51 @@ I was never wrong."
 | Fate/Apocrypha | Light novel / Anime | A large-scale Holy Grail War |
 | Fate/strange Fake | Light novel / Anime | A false Holy Grail War in America |
 
-## Watch Order (My Recommendation)
-1. Fate/Zero
-2. Fate/stay night: Unlimited Blade Works
-3. Fate/Apocrypha
+## Watch Order All of them (Light Novel is not included, My Recommendation)
+------------------------------------------------------------------------------------------------------------------------
+Fate/Stay Night (2006) [Dub&Sub]
+
+Fate/Stay Night Unlimited Blade Works Season 1&2 + Ova + Special [Dub&Sub]
+
+Fate/Zero 1&2 [Dub&Sub]
+
+Fate/StayNight Heaven's Feel's l,ll,lll [Dub&Sub]
+
+Today's MENU For Emiya Family/Emiya-san Chi no Kyou no Gohan [Only,Sub]
+-----------------------------------------------------------------------------------------------------------------------
+Lord El-Melloi II's Case Files] (Season I,2 + Ova + Special) [Season 1 Have [Dub&Sub] Season 2 Only Have [Sub]
+
+Fate/Apocrypha [Dub &Sub]
+------------------------------------------------------------------------------------------------------------------------
+Fate/Kaleid Liner Prisma Illya (Season I)
+[Dub&Sub]
+
+Fate/Kaleid Liner Prisma Illya 2Wei! (Season 2) [Dub&Sub]
+
+Fate/Kaleid Liner Prisma Illya 2Wei Herz! (Season 3) [Dub&Sub]
+
+FATE/KALEID LINER PRISMA☆ILLYA MOVIE: OATH UNDER SNOW [Only Sub]
+
+Fate/kaleid liner Prisma☆Illya 3rei!! (Season 4) [Only Sub]
+
+Fate/kaleid liner Prisma☆Illya Movie [Only Sub]
+------------------------------------------------------------------------------------------------------------------------
+Fate/Extra: Last Encore [Dub&Sub]
+
+Fate/Extra: Last Encore - Illustrias Tendousetsu [Dub&Sub]
+------------------------------------------------------------------------------------------------------------------------
+Fate First Order [Dub&Sub]
+
+Fate/Grand Order: Shinsei Entaku Ryouiki Camelot 1 [Dub &Sub]
+
+Fate/Grand Order: Shinsei Entaku Ryouiki Camelot 2 [Dub&Sub]
+
+Fate/Grand Order: Absolute Demonic Front - Babylonia [Dub&Sub]
+
+Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon [Dub&Sub]
+
+Fate/Grand Carnival [Dub&Sub]
+------------------------------------------------------------------------------------------------------------------------
 
 ## Learn More
 Visit the [Fate Wiki](https://typemoon.fandom.com) or the [Type-Moon website](https://typemoon.net) for more information.
