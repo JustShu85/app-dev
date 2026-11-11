@@ -20,15 +20,17 @@ Fate series is revolves around the Holy Grail War, a secret battle royale where 
 5. Caster
 6. Assassin
 7. Berserker
-The Extra Classes
-Ruler
-Avenger
-Shielder
-Alter Ego
-Foreigner
-Moon Cancer
-Pretender
-Beast
+
+##The Extra Classes
+
+9. Ruler
+10. Avenger
+11. Shielder
+12. Alter Ego
+13. Foreigner
+14. Moon Cancer
+15. Pretender
+16. Beast
 
 ## Top 3 Characters
 1. Artoria Pendragon (Saber Class)
