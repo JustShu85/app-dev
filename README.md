@@ -20,6 +20,15 @@ Fate series is revolves around the Holy Grail War, a secret battle royale where 
 5. Caster
 6. Assassin
 7. Berserker
+The Extra Classes
+Ruler
+Avenger
+Shielder
+Alter Ego
+Foreigner
+Moon Cancer
+Pretender
+Beast
 
 ## Top 3 Characters
 1. Artoria Pendragon (Saber Class)
@@ -47,7 +56,10 @@ I was never wrong."
 | Fate/strange Fake | Light novel / Anime | A false Holy Grail War in America |
 
 ## Watch Order All of them (Light Novel is not included, My Recommendation)
+
+Fate Route
 ------------------------------------------------------------------------------------------------------------------------
+
 Fate/Stay Night (2006) [Dub&Sub]
 
 Fate/Stay Night Unlimited Blade Works Season 1&2 + Ova + Special [Dub&Sub]
@@ -57,11 +69,17 @@ Fate/Zero 1&2 [Dub&Sub]
 Fate/StayNight Heaven's Feel's l,ll,lll [Dub&Sub]
 
 Today's MENU For Emiya Family/Emiya-san Chi no Kyou no Gohan [Only,Sub]
+
+After the FSN
 -----------------------------------------------------------------------------------------------------------------------
+
 Lord El-Melloi II's Case Files] (Season I,2 + Ova + Special) [Season 1 Have [Dub&Sub] Season 2 Only Have [Sub]
 
 Fate/Apocrypha [Dub &Sub]
+
+This is the Universe where is Everyone is Happy (plot twist incoming)
 ------------------------------------------------------------------------------------------------------------------------
+
 Fate/Kaleid Liner Prisma Illya (Season I)
 [Dub&Sub]
 
@@ -74,10 +92,15 @@ FATE/KALEID LINER PRISMA☆ILLYA MOVIE: OATH UNDER SNOW [Only Sub]
 Fate/kaleid liner Prisma☆Illya 3rei!! (Season 4) [Only Sub]
 
 Fate/kaleid liner Prisma☆Illya Movie [Only Sub]
+
+Fate Extra (Light Novel and Games are not Inchuded)
 ------------------------------------------------------------------------------------------------------------------------
+
 Fate/Extra: Last Encore [Dub&Sub]
 
 Fate/Extra: Last Encore - Illustrias Tendousetsu [Dub&Sub]
+
+Fate Grand Order (Game Story are not Inchuded)
 ------------------------------------------------------------------------------------------------------------------------
 Fate First Order [Dub&Sub]
 
